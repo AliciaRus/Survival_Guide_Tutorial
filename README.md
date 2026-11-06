@@ -7,6 +7,7 @@ Brooklyn: Drink some morning coffee! It's like a reward for all your studying!
 
 Jess: Get involved early! You will meet so many amazing people while being involved on campus :)
 
+Mallory: Study break snacks are your best friend!
 Carolyn: Linkedin connections (add me Carolyn Brzezinski)
 Lex: Try something new! Get out of your comfort zone!
 
